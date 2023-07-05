@@ -1,4 +1,5 @@
 # CV -JOHANA JIMENEZ CASAS
+![images](https://github.com/JohanaJimenez1/MarkDown/assets/137881601/6894e0f3-3f58-4eed-8978-880d0d81ba2d)
 ## Présentation
 après un parcours professionnel en Colombie, je dois mettre à jour mes
 connaissances en assurances, droit, gestion, etc afin de pouvoir utiliser mes compétences dans
