@@ -1,4 +1,4 @@
-# CV -JOHANA JIMENEZ CASAS
+# CV - JOHANA JIMENEZ CASAS
 
 ![images](https://github.com/JohanaJimenez1/MarkDown/assets/137881601/6894e0f3-3f58-4eed-8978-880d0d81ba2d)
 
@@ -25,5 +25,5 @@ De langue maternelle espagnole, je possède le niveau B2 en français.
 ## Hobbies
   - _Basketball_
   - _Voyager_
-  - 
+    
 [](url)https://www.youtube.com/watch?v=eXF0epLeCgo
