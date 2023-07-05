@@ -30,6 +30,7 @@ De langue maternelle espagnole, je possède le niveau B2 en français.
 >Gestion de stocks, gestion des commandes, étiquetages des marchandises, encaissement, fidélisation client, enregistrement, retour et perte de marchandise, 
 
 **_-conseillère en assurances_**
+
 IKE ASSISTENCIA, Bogota,Colombie D'avril 2017 à février 2019
 
 >Gestion des comptes, service clientèle, vente et promotion des services, coordination services
