@@ -31,7 +31,7 @@ De langue maternelle espagnole, je possède le niveau B2 en français.
 
 **_-conseillère en assurances_**
 
-IKE ASSISTENCIA, Bogota,Colombie D'avril 2017 à février 2019
+Ike Assistentia, Bogota,Colombie D'avril 2017 à février 2019
 
 >Gestion des comptes, service clientèle, vente et promotion des services, coordination services
 
