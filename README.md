@@ -22,6 +22,22 @@ De langue maternelle espagnole, je possède le niveau B2 en français.
 **_- Assistance technique en administration d'entreprises (BAC+2)_**
   - National University Corporation CUN , Bogota,Colombie
   - De janvier 2016 à juillet 2019.
+    
+## Expériences professionnelles
+**_-Employée commerciale polyvalente_**
+Lidl, Clamart, L'Île-de-France D'août 2022 à décembre 2022
+Gestion de stocks, gestion des commandes
+Etiquetages des marchandises
+Encaissement, fidélisation client.
+Enregistrement, retour et perte de marchandise.
+Conseillère en assurances
+
+**_-IKE ASSISTENCIA, Bogota,Colombie D'avril 2017 à février 2019_**
+Gestion des comptes
+Service clientèle
+Vente et promotion des services
+Coordination services
+
 ## Hobbies
   - _Basketball_
   - _Voyager_
