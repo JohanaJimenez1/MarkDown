@@ -25,18 +25,13 @@ De langue maternelle espagnole, je possède le niveau B2 en français.
     
 ## Expériences professionnelles
 **_-Employée commerciale polyvalente_**
-Lidl, Clamart, L'Île-de-France D'août 2022 à décembre 2022
-Gestion de stocks, gestion des commandes
-Etiquetages des marchandises
-Encaissement, fidélisation client.
-Enregistrement, retour et perte de marchandise.
-Conseillère en assurances
+>Lidl, Clamart, L'Île-de-France D'août 2022 à décembre 2022
+
+>Gestion de stocks, gestion des commandes, étiquetages des marchandises, encaissement, fidélisation client, enregistrement, retour et perte de marchandise, 
+conseillère en assurances
 
 **_-IKE ASSISTENCIA, Bogota,Colombie D'avril 2017 à février 2019_**
-Gestion des comptes
-Service clientèle
-Vente et promotion des services
-Coordination services
+>Gestion des comptes, service clientèle, vente et promotion des services, coordination services
 
 ## Hobbies
   - _Basketball_
